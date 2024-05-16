@@ -14,6 +14,6 @@ Hope I brought joy to you with my tools! ❤️❤️❤️
 
 Much love, Cabbo.
 
-I am still opened to message BUT PLEASE ON DISCORD > @cabbo1337 | @cabboshiba
+I am still opened to message BUT PLEASE ON DISCORD > @cabbo1337 | @cabboshiba  **I WILL NOT ANSWER ANYMORE ON TELEGRAM, BUT I STILL HOLD THE HANDLER @cabboshiba**
 
 I'll be happy to discuss with you, but I won't take any Reverse Engineering request anymore :))
