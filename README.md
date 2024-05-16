@@ -16,4 +16,4 @@ Much love, Cabbo.
 
 I am still opened to message BUT PLEASE ON DISCORD > @cabbo1337 | @cabboshiba
 
-I'll be happy to discuss with you, but I won't take any Reverse Engineering request anymore :)
+I'll be happy to discuss with you, but I won't take any Reverse Engineering request anymore :))
