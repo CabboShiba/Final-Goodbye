@@ -13,3 +13,7 @@ I felt this necessity to make this message to give a small answer to my absence 
 Hope I brought joy to you with my tools! ❤️❤️❤️
 
 Much love, Cabbo.
+
+I am still opened to message BUT PLEASE ON DISCORD > @cabbo1337 | @cabboshiba
+
+I'll be happy to discuss with you, but I won't take any Reverse Engineering request anymore :)
